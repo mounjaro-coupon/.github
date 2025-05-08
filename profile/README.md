@@ -50,6 +50,22 @@ If you don't qualify for the mounjaro savings card, there are other ways to redu
 | Singlecare     | Anyone | Upto 80% off | Single care.com/prescription/mounjaro |
 | wellRx         | Anyone | Upto 80% off  | Wellrx com /mounjaro/coupon |
 
+----
+
+## frequently asked questions:
+Q: can i use mounjaro savings card if i have medicare or medicalid?
+A: no the savings card is only avaliable with commercial insurance and is not valid for individuals enrolled in government  funded health care programs.
+
+Q: What if my insurance dosent cover mounjaro ?
+A: even if your insurance dosent cover mounjaro, you still be eligible for savings through the mounjaro savings card, which can provide upto $473 off a 28-day prescription fill.
+
+Q: Are there generic versions of mounjaro avaliable ?
+A: currently, there are no generic alternatives for mounjaro. 
+
+Final words: Mounjaro Coupon:
+
+Saving on your mounjaro prescription is possible through various programs and discount cards. whether you qualify for the offical savings card or use third party coupons, these options can significantly reduce your medication costs. Always consult with your healthcare provider and pharmacist to find the best savings option for your situation.
+
 
 
 <!--
