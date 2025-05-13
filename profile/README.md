@@ -4,6 +4,7 @@ If you're looking to save money on your mounjaro prescription, there are several
 there are serveral options avaliable. You can use the official mounjaro savings card, or find discounts through reputable coupon websites.
 These options can help reduce your out of pocket costs significantly.
 
+<h1><a href="https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F05%2Fmounjaro-coupons-savings.html&sa=D&sntz=1&usg=AOvVaw1s_S5oQgl7AUcKip7_APnf">👉 Click here to get Mounjaro Coupon </a></h1>
 ----
 
 What is the mounjaro savings card?
